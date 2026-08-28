@@ -1,4 +1,3 @@
-Archivo:Tianshang Mapa.png
 Imperio Tianshang
 Extensión aproximada del Gran Tianshang en su máxima expansión.
 
