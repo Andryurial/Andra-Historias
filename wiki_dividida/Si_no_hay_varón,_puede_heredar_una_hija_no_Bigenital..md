@@ -1,0 +1,1 @@
+# Si no hay varón, puede heredar una hija no Bigenital.

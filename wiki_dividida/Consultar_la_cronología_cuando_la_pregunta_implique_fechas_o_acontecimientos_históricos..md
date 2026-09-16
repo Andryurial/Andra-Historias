@@ -1,0 +1,1 @@
+# Consultar la cronología cuando la pregunta implique fechas o acontecimientos históricos.

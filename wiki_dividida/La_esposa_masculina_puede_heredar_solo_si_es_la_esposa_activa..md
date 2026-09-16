@@ -1,0 +1,1 @@
+# La esposa masculina puede heredar solo si es la esposa activa.

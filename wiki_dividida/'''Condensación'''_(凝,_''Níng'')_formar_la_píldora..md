@@ -1,0 +1,1 @@
+# '''Condensación''' (凝, ''Níng''): formar la píldora.

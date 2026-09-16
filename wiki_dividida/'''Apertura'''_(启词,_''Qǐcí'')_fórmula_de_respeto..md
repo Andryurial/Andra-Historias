@@ -1,0 +1,1 @@
+# '''Apertura''' (启词, ''Qǐcí''): fórmula de respeto.

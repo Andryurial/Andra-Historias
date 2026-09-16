@@ -1,0 +1,1 @@
+# Consultar las páginas de países, personajes, organizaciones o acontecimientos relacionados.

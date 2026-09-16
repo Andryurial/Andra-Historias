@@ -1,0 +1,1 @@
+# El esposo femenino no hereda.

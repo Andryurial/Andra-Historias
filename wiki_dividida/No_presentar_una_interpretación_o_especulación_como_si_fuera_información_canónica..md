@@ -1,0 +1,1 @@
+# No presentar una interpretación o especulación como si fuera información canónica.

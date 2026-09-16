@@ -1,0 +1,1 @@
+# '''Transformación mutua''': el exceso de Yin genera Yang y viceversa.

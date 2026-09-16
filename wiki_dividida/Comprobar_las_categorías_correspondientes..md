@@ -1,0 +1,1 @@
+# Comprobar las categorías correspondientes.

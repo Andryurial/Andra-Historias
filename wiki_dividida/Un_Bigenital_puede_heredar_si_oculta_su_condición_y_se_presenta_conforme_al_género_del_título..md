@@ -1,0 +1,1 @@
+# Un Bigenital puede heredar si oculta su condición y se presenta conforme al género del título.

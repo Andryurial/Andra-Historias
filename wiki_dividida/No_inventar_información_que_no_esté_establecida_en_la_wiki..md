@@ -1,0 +1,1 @@
+# No inventar información que no esté establecida en la wiki.
